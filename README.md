@@ -32,4 +32,4 @@ Building practical cybersecurity skills and becoming a professional **Penetratio
 
 ### 🌐 Connect
 
-[LinkedIn](https://www.linkedin.com/in/mohinur-ergashaliyeva-22810b429)
+[LinkedIn](https://www.linkedin.com/in/mohinur-ergashaliyeva/)
